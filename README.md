@@ -1,0 +1,2 @@
+# Master-Dregee-
+Master Static
